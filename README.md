@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nelo-Nel0
-- 👀 I’m interested in grown grass (also coding)
+- 👀 I’m interested in grown grass (Computer stuff)
 - 🌱 I’m currently learning how to grow grass (coding)
 - 💞️ I’m looking to collaborate on grass growing (apps, programs, videogames,etc im preety eager to learn)
 - 📫 How to reach me just look in the tall grass ( my work email is nelsonbpina@gmail.com)
